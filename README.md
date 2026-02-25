@@ -1,5 +1,6 @@
 - Hey, I am Johnny.
-- Founder, Hotlist Digital. Inc. 5000 #212.
+- Founder, Hotlist Digital.
+- Inc. 5000 #212 in 2022.
 - I build governed systems that make hard work feel simple.
 
 **Now**
